@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @natlawson
+- 👀 I’m interested in physics 
+- 🌱 I’m currently learning to maintain calm.
+- 💞️ I’m looking to collaborate on large scale objects
+- 📫 How to reach me?  Ahem .. Brilliancy.
